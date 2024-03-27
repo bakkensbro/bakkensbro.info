@@ -1,2 +1,2 @@
 # bakkensbro.info
-Inforscreens on BAKC
+Inforscreens on Bakkensbro Aktivitsts og Kultur Center
